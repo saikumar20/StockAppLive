@@ -4,7 +4,7 @@
 
 ## 📸 Demo :
 
-(https://www.youtube.com/shorts/1OMbT7AvZ50)
+https://www.youtube.com/shorts/1OMbT7AvZ50
 
 ## 🚀 Features
 
